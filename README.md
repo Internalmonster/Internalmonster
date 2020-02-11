@@ -7,4 +7,4 @@
 
 Run@internal.monster  
 
-When the display picture dissolved and her face replaced the image. 12/02/20
+When the display picture dissolved and her face replaced the image. 12/02/20 - 1248AM
