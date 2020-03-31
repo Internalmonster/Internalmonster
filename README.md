@@ -10,5 +10,7 @@ Run@internal.monster
 When the display picture dissolved and her face replaced the image. 12/02/20 - 1248AM
 
 Social distancing;
+
 A connected internet
+
 Dreams of her touch. 25/03/20 - 1040PM
