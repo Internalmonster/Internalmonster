@@ -13,4 +13,7 @@ Social distancing:
 A connected internet:
 Dreams of her touch.  25/03/20 - 1040PM
 
+
+How can you be worth nothing, if to someone; you're worth everything? 07/04/20 - 0544PM
+
 [Click](https://raw.githubusercontent.com/Internalmonster/Internalmonster/master/internalmonster.bat)
