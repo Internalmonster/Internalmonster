@@ -18,4 +18,7 @@ The net profit of a romantic obligation can not be measured in kilowatts per hou
 Passion is a forgetful ledger,
 love is not a smart contract.  14/04/20 - 0753PM
 
+My memory holds forced variables.
+Your love is arbitrary code execution. 01/05/20 - 1034PM
+
 [Click](https://raw.githubusercontent.com/Internalmonster/Internalmonster/master/internalmonster.bat)
