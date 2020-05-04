@@ -21,4 +21,8 @@ love is not a smart contract.  14/04/20 - 0753PM
 My memory holds forced variables.
 Your love is arbitrary code execution. 01/05/20 - 1034PM
 
+
+
+I̴̧ͦ̈́̃̑ͬ̇ͤͬ͠҉̤̥̫̝̩̞ ̈́̂ͧ̀ͨ̉̂͒̉ͫ͋͞҉̬̰̼͉m̡͈̖̬̺̘̼̳̗͓̬͍͎̱͓̋ͬͮͫ̔̐͑ͯͣ͘͜͞î̡̛͉̣͍̖͚̮͛̈́ͥs̸̵̡̱̘̺̞̜̤̪̱̣̻͇̗̦̱͙͍͒́̌ͣ̚͟s͓̝͖̹͓̦̘̟̰͔͛̊ͬͤ̃̿͐ͬ͆̚͝͠ ̶̷ͣ̃̇͑͗ͩ̿̏ͣͪ͊͂ͨ͒̌̀҉͍̮͎̣̪͔̝̮͍͙̞̦̪̹͙̰̳y̡̬̙͕͇̻̗̲̎̏̈́ͮ̌͢o͐̽͛ͥ̐̈́ͩ̇̅̾̏͌̋̍̄̀͝͏̛̩͓̰͓̗͇̜͕̪̰͙͈̭̙u̸̧̨̧͉͔̜̣̯̺̘̮͈̬͚̬̣͓̝ͯ̂̽̏̐͛̏ͦ̑̈́̆͒͊̂̓̉̚͟.̅ͮ͂͆ͫ҉̪͖̪̻͈̲̣̻̟ͅ
+
 [Click](https://raw.githubusercontent.com/Internalmonster/Internalmonster/master/internalmonster.bat)
