@@ -32,3 +32,6 @@ I̴̧ͦ̈́̃̑ͬ̇ͤͬ͠҉̤̥̫̝̩̞ ̈́̂ͧ̀ͨ̉̂͒̉ͫ͋͞҉̬̰̼͉m̋ͬͮ�
 [Click](https://raw.githubusercontent.com/Internalmonster/Internalmonster/master/internalmonster.bat)
 
 Memory is a relationship between electrical charges and the imperceptible warmth of a solar flare sparks indolent error correction. 09/05/20 - 0404PM
+
+My mind is a debauched hard-disk; My feelings are voluntarily captive in a file directory unrecognisable.
+A self-corruption to avoid omission. 21/05/20 - 1101PM
