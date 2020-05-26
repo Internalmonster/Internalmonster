@@ -35,3 +35,8 @@ Memory is a relationship between electrical charges and the imperceptible warmth
 
 My mind is a debauched hard-disk; My feelings are voluntarily captive in a file directory unrecognisable.
 A self-corruption to avoid omission. 21/05/20 - 1101PM
+
+
+<img src="https://raw.githubusercontent.com/Internalmonster/Internalmonster/master/HeartHead.png" alt="Hi" width="100" height="100">
+
+
