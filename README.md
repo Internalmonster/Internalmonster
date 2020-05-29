@@ -36,7 +36,7 @@ Memory is a relationship between electrical charges and the imperceptible warmth
 My mind is a debauched hard-disk; My feelings are voluntarily captive in a file directory unrecognisable.
 A self-corruption to avoid omission. 21/05/20 - 1101PM
 
-The erratic oscillation of scorched quartz catalyse incessant flashbacks. I can't handle the instability; One Year Ago, Today, I was happy. 29/05/2020 - 1055AM
+The erratic oscillation of scorched quartz catalyse incessant flashbacks. I can't handle the instability; One Year Ago, Today, I was happy. 29/05/20 - 1055AM
 
 <img src="https://raw.githubusercontent.com/Internalmonster/Internalmonster/master/HeartHead.png" alt="Hi" width="100" height="100">
 
