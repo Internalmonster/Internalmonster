@@ -38,6 +38,9 @@ A self-corruption to avoid omission. 21/05/20 - 1101PM
 
 The erratic oscillation of scorched quartz catalyse incessant flashbacks. I can't handle the instability; One Year Ago, Today, I was happy. 29/05/20 - 1055AM
 
+
+<s>
+Iͥ͗̈̔̉̅̆ͩ͆̑̍̊̈́͏̷̜̝͔̼̗͙̤͙͙̼'̸̴̛͐ͭ̈́̏͞҉̩̩̹̲͔͖͉̝͕̲̰̭͕̺̗̖͙̦ͅm̤̳͕̻̻͇̖̙̜͕̥̦͊͑̄͐ͨ̾ͮ̋̈́͆ͪ̒̑ͬ͠ ̢ͨ̅ͪ͗̃̿ͫͬ̑̌̎̈͋̏̚͟҉̭̰̰͙͕̤̯͔͚͕̜̩̬̱̰͇̼̲̝n̖̬͇̤͙̻͇̘̼̞̰̠͇ͪ͂ͥͯ͌̆͐ͩͥ͒͐͌̾̍͟͞͡o̞̲̹̲̼̭̤͇̻̬͖̟̫̣̖͖̼ͧͪ̂̌͜͞ẗ̨̡̜͖̝̗͇͓̻͓̺͇̦͔̯̼̭́̈ͤ͛̄ͅ ̸̖̞̦̜̯̥͖̱͚̦̳̝͈̰̟̀̽̃ͧͯ̽̄̏͌ͪ͌͑ͮ̔̚͝o͔͎͕̗̭̠̣̻̳̱͚̹̥̗͓͎̠̔̉̋̎͌̂̔̃̾̚͟͟ḱ͕̖̣͈͚̘̯̻͚̠͇̖͈̼̪͛́̀ͭ̿͘͠͝͞a̸̿͂ͤ̎ͮ͑͜͏̫̟͎̭̣̠̹̯̕͢y̼̗̝͚̠̠ͨ͛͆̾̿̉̆̍͒͘͟ͅ.̳͉̲͇̘͕͓͎̱͑̐̆̉̀͜</s>
 <img src="https://raw.githubusercontent.com/Internalmonster/Internalmonster/master/HeartHead.png" alt="Hi" width="100" height="100">
 
 
