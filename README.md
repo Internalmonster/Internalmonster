@@ -42,6 +42,8 @@ The erratic oscillation of scorched quartz catalyse incessant flashbacks. I can'
 [<s>
 Iͥ͗̈̔̉̅̆ͩ͆̑̍̊̈́͏̷̜̝͔̼̗͙̤͙͙̼'̸̴̛͐ͭ̈́̏͞҉̩̩̹̲͔͖͉̝͕̲̰̭͕̺̗̖͙̦ͅm̤̳͕̻̻͇̖̙̜͕̥̦͊͑̄͐ͨ̾ͮ̋̈́͆ͪ̒̑ͬ͠ ̢ͨ̅ͪ͗̃̿ͫͬ̑̌̎̈͋̏̚͟҉̭̰̰͙͕̤̯͔͚͕̜̩̬̱̰͇̼̲̝n̖̬͇̤͙̻͇̘̼̞̰̠͇ͪ͂ͥͯ͌̆͐ͩͥ͒͐͌̾̍͟͞͡o̞̲̹̲̼̭̤͇̻̬͖̟̫̣̖͖̼ͧͪ̂̌͜͞ẗ̨̡̜͖̝̗͇͓̻͓̺͇̦͔̯̼̭́̈ͤ͛̄ͅ ̸̖̞̦̜̯̥͖̱͚̦̳̝͈̰̟̀̽̃ͧͯ̽̄̏͌ͪ͌͑ͮ̔̚͝o͔͎͕̗̭̠̣̻̳̱͚̹̥̗͓͎̠̔̉̋̎͌̂̔̃̾̚͟͟ḱ͕̖̣͈͚̘̯̻͚̠͇̖͈̼̪͛́̀ͭ̿͘͠͝͞a̸̿͂ͤ̎ͮ͑͜͏̫̟͎̭̣̠̹̯̕͢y̼̗̝͚̠̠ͨ͛͆̾̿̉̆̍͒͘͟ͅ.̳͉̲͇̘͕͓͎̱͑̐̆̉̀͜</s> ](https://raw.githubusercontent.com/Internalmonster/Internalmonster/master/hihello.png)
 
+Your smile is an idyllic assembly of integers in my read-only memory; A poignant fossil of electromagnetic energy. 12/06/20 - 0715PM
+
 
 <img src="https://raw.githubusercontent.com/Internalmonster/Internalmonster/master/HeartHead.png" alt="Hi" width="100" height="100">
 
