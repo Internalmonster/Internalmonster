@@ -44,6 +44,8 @@ Iͥ͗̈̔̉̅̆ͩ͆̑̍̊̈́͏̷̜̝͔̼̗͙̤͙͙̼'̸̴̛͐ͭ̈́̏͞҉̩̩̹̲
 
 Your smile is an idyllic assembly of integers in my read-only memory; A poignant fossil of electromagnetic energy. 12/06/20 - 0715PM
 
+To remember - the capacitive measurements of your touch are parsed into mathematical representation. I miss the volatility of your memory. 03/07/20 - 0744PM
+
 
 <img src="https://raw.githubusercontent.com/Internalmonster/Internalmonster/master/HeartHead.png" alt="Hi" width="100" height="100">
 
