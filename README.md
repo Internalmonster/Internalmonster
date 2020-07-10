@@ -48,6 +48,6 @@ To remember - the capacitive measurements of your touch are parsed into mathemat
 
 
 <img src="https://raw.githubusercontent.com/Internalmonster/Internalmonster/master/HeartHead.png" alt="Hi" width="100" height="100">
-<img src="https://raw.githubusercontent.com/Internalmonster/Internalmonster/master/H.U.R.T.gif" alt="Why" width="140" height="100">
+<img src="https://raw.githubusercontent.com/Internalmonster/Internalmonster/master/H.U.R.T.gif" alt="Why" width="160" height="100">
 
 
