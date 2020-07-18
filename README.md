@@ -48,6 +48,6 @@ Your smile is an idyllic assembly of integers in my read-only memory; A poignant
 To remember - the capacitive measurements of your touch are parsed into mathematical representation. I miss the volatility of your memory. 03/07/20 - 0744PM
 
 
-A demoralising inability to process your name, a familiar landscape - pixelated to mask a lack of quality. 18/07/20 - 1035PM
+A demoralising inability to process your name - a familiar landscape; pixelated to mask a lack of quality. 18/07/20 - 1035PM
 
 <img src="https://raw.githubusercontent.com/Internalmonster/Internalmonster/master/HeartHead.png" alt="Hi" width="100" height="100">
