@@ -52,4 +52,4 @@ To remember - the capacitive measurements of your touch are parsed into mathemat
 
 A demoralising inability to process your name - a familiar landscape; pixelated to mask a lack of quality. 18/07/20 - 1035PM
 
-<img src="https://raw.githubusercontent.com/Internalmonster/Internalmonster/master/HeartHead.png" alt="Hi" width="100" height="100">
+<img src="https://raw.githubusercontent.com/Internalmonster/Internalmonster/master/HeartHead.png" alt="Hi" width="100" height="100"> <img src="https://raw.githubusercontent.com/Internalmonster/Internalmonster/master/BOO.gif" alt="Boo" width="54.4" height="80">
