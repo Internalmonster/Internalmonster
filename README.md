@@ -1,4 +1,4 @@
-<Center>
+
 Ȋ̸̛͇͕̟̟͍̟̄́̒̐͌̑͠N̷͉͍̤̤͕͔͌̄͐̇͊͝͝͠ͅT̶̲͓͈͚͙̫͊̄̃͐̎̇̔͜͝Ȩ̶̙̮̪͖̥̤̰̤̭͐́̀͋͒͒͒̓̈͝Ŗ̸̺̃̓̓ͅŅ̴̢̖̭̳͐̉̐͊͝Á̶̧̰͎̰̱͒L̵͖̪̟̦̼̗̭͆͗̍͛̀̕͝ͅ.̶͈̰̬̟̙͉̮̙̗̍́͆́̈́͜M̵̛̰͉̬͎̖̲̼̣̘̏̌͑̐̆̓̀͘Ỡ̸̧̳̠̭͍̝̯͉̲̃̄͒̔̍́̕ͅN̷͖̫̝̜̏̌Ś̴̡̛̛̛̺̬̥̼̟̌̎̾̆́̚ͅT̵̝̻̹̜͓̦̱̏̃́̉̀̃̊̊E̸̢͕̩̘̩͈̼͑̒̅͑̑́̊̔͜R̸̞̣̱̉̈ͅ
 
 
@@ -7,7 +7,7 @@
 [【﻿Ｒｅｐｒｅｓｅｎｔ】](https://represent.monster)
 
 Run@internal.monster  
-</Center>
+
 <img src="https://raw.githubusercontent.com/Internalmonster/Internalmonster/master/H.U.R.T.gif" alt="Why" width="80" height="50">
 
 When the display picture dissolved and her face replaced the image. 12/02/20 - 1248AM
