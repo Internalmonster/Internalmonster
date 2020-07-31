@@ -32,7 +32,6 @@ Your love is arbitrary code execution. 01/05/20 - 1034PM
 
 I̴̧ͦ̈́̃̑ͬ̇ͤͬ͠҉̤̥̫̝̩̞ ̈́̂ͧ̀ͨ̉̂͒̉ͫ͋͞҉̬̰̼͉m̡͈̖̬̺̘̼̳̗͓̬͍͎̱͓̋ͬͮͫ̔̐͑ͯͣ͘͜͞î̡̛͉̣͍̖͚̮͛̈́ͥs̸̵̡̱̘̺̞̜̤̪̱̣̻͇̗̦̱͙͍͒́̌ͣ̚͟s͓̝͖̹͓̦̘̟̰͔͛̊ͬͤ̃̿͐ͬ͆̚͝͠ ̶̷ͣ̃̇͑͗ͩ̿̏ͣͪ͊͂ͨ͒̌̀҉͍̮͎̣̪͔̝̮͍͙̞̦̪̹͙̰̳y̡̬̙͕͇̻̗̲̎̏̈́ͮ̌͢o͐̽͛ͥ̐̈́ͩ̇̅̾̏͌̋̍̄̀͝͏̛̩͓̰͓̗͇̜͕̪̰͙͈̭̙u̸̧̨̧͉͔̜̣̯̺̘̮͈̬͚̬̣͓̝ͯ̂̽̏̐͛̏ͦ̑̈́̆͒͊̂̓̉̚͟.̅ͮ͂͆ͫ҉̪͖̪̻͈̲̣̻̟ͅ
 
-[Click](https://raw.githubusercontent.com/Internalmonster/Internalmonster/master/internalmonster.bat)
 
 Memory is a relationship between electrical charges and the imperceptible warmth of a solar flare sparks indolent error correction. 09/05/20 - 0404PM
 
