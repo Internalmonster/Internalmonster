@@ -53,4 +53,8 @@ A demoralising inability to process your name - a familiar landscape; pixelated 
 
 Testing hypothalamic overclocking; our words become dropped packets // A communication error between two incapable hosts. 29/07/20 - 0837AM
 
+Her zone files persist as non-verifiable text values; an A record to direct me away from your thoughts. 16/08/20 - 0855PM
+
 <img src="https://raw.githubusercontent.com/Internalmonster/Internalmonster/master/HeartHead.png" alt="Hi" width="100" height="100"> <img src="https://raw.githubusercontent.com/Internalmonster/Internalmonster/master/BOO.gif" alt="Boo" width="54.4" height="80">
+
+
