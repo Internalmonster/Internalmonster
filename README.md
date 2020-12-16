@@ -57,7 +57,8 @@ Her zone files persist as non-verifiable text values; an A record to direct me a
 
 My avatar waits by a lonely mailbox, a twisted composition of saudade and havok-script keeps me in place - an incessant bright and blue indication, that isn't you. 17/10/20 - 1154PM
 
-An overcurrent protection triggered by an unnecessary 120 watts // Disk error.
+An overcurrent protection triggered by an unnecessary 120 watts // Disk error. 16/12/20 - 10:37PM
+
 <img src="https://raw.githubusercontent.com/Internalmonster/Internalmonster/master/HeartHead.png" alt="Hi" width="100" height="100"> <img src="https://raw.githubusercontent.com/Internalmonster/Internalmonster/master/BOO.gif" alt="Boo" width="54.4" height="80">
 
 
