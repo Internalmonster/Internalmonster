@@ -59,6 +59,8 @@ My avatar waits by a lonely mailbox, a twisted composition of saudade and havok-
 
 An overcurrent protection triggered by an unnecessary 120 watts // Disk error. 16/12/20 - 1037PM
 
+Your words exact an amygdalic hijack; A methodical kamikaze mod on my limbic system. 25/12/2020 - 0846AM
+
 <img src="https://raw.githubusercontent.com/Internalmonster/Internalmonster/master/HeartHead.png" alt="Hi" width="100" height="100"> <img src="https://raw.githubusercontent.com/Internalmonster/Internalmonster/master/BOO.gif" alt="Boo" width="54.4" height="80">
 
 
