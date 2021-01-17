@@ -59,6 +59,8 @@ My avatar waits by a lonely mailbox, a twisted composition of saudade and havok-
 
 An overcurrent protection triggered by an unnecessary 120 watts // Disk error. 16/12/20 - 1037PM
 
-Your words exact an amygdalic hijack; A methodical kamikaze mod on my limbic system. 25/12/2020 - 0846AM
+Your words exact an amygdalic hijack; A methodical kamikaze mod on my limbic system. 25/12/20 - 0846AM
+
+The amnesic complications of a 576 megapixel camera writing unrecognisable metadata // Used 2.5 Petabytes. 17/01/21 - 0448PM
 
 [<img src="https://raw.githubusercontent.com/Internalmonster/Internalmonster/master/HeartHead.png" alt="Hi" width="100" height="100">](https://github.com/Internalmonster/Internalmonster/raw/master/LeaveMeAlone.fbx)
