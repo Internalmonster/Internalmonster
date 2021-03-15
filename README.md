@@ -63,4 +63,6 @@ Your words exact an amygdalic hijack; A methodical kamikaze mod on my limbic sys
 
 The amnesic complications of a 576 megapixel camera writing unrecognisable metadata // Used 2.5 Petabytes. 17/01/21 - 0448PM
 
+An arbitrary value persists as my memory becomes fatigued. Your candied smell is stale reference manipulation. 15/03/21 - 0749PM
+
 [<img src="https://raw.githubusercontent.com/Internalmonster/Internalmonster/master/HeartHead.png" alt="Hi" width="100" height="100">](https://github.com/Internalmonster/Internalmonster/raw/master/LeaveMeAlone.fbx)
