@@ -63,4 +63,6 @@ The amnesic complications of a 576 megapixel camera writing unrecognisable metad
 
 An arbitrary value persists as my memory becomes fatigued. Your candied smell is stale reference manipulation. 15/03/21 - 0749PM
 
+
+I̸̥̊'̸̢̚v̴̰͑e̵̡͠ ̸̙͊ḿ̴̞a̸̞̒ḑ̸̛e̴͔͌ ̶̜̓ḿ̷̡i̵͚̓s̵̠͐t̷̪̕a̵̪̚k̴͉͝e̸̦͝ṡ̴̯.̸͓̐ ̸̰̇I̵͕͆'̷̻͌v̵̭̄e̸̻͊ ̵͈͗g̷͇̉ỏ̵̯n̶̙̽e̴̱̕ ̸̼̆t̶͍͠o̶͜͝ơ̷͍ ̸̖̈́f̶̹͑a̸̫͊r̵̦̃.̶̻̐ ̴̤̽I̵̮̋ ̵̭͆w̵͈͑a̷̬͝ñ̵̜t̷̬͊ ̸͎̈́ṭ̷͊ö̴̜́ ̴̲̕d̴͈̔i̶̘͝ḙ̸̔.̸̳̽
 [<img src="https://raw.githubusercontent.com/Internalmonster/Internalmonster/master/HeartHead.png" alt="Hi" width="100" height="100">](https://github.com/Internalmonster/Internalmonster/raw/master/LeaveMeAlone.fbx)
