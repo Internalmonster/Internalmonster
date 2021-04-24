@@ -1,10 +1,9 @@
 
 Ȋ̸̛͇͕̟̟͍̟̄́̒̐͌̑͠N̷͉͍̤̤͕͔͌̄͐̇͊͝͝͠ͅT̶̲͓͈͚͙̫͊̄̃͐̎̇̔͜͝Ȩ̶̙̮̪͖̥̤̰̤̭͐́̀͋͒͒͒̓̈͝Ŗ̸̺̃̓̓ͅŅ̴̢̖̭̳͐̉̐͊͝Á̶̧̰͎̰̱͒L̵͖̪̟̦̼̗̭͆͗̍͛̀̕͝ͅ.̶͈̰̬̟̙͉̮̙̗̍́͆́̈́͜M̵̛̰͉̬͎̖̲̼̣̘̏̌͑̐̆̓̀͘Ỡ̸̧̳̠̭͍̝̯͉̲̃̄͒̔̍́̕ͅN̷͖̫̝̜̏̌Ś̴̡̛̛̛̺̬̥̼̟̌̎̾̆́̚ͅT̵̝̻̹̜͓̦̱̏̃́̉̀̃̊̊E̸̢͕̩̘̩͈̼͑̒̅͑̑́̊̔͜R̸̞̣̱̉̈ͅ
+<img src="https://raw.githubusercontent.com/Internalmonster/Internalmonster/master/Broken.gif" alt="Why" width="80" height="80">
 
 
  o͓̽u͓̽r͓̽ ͓̽e͓̽x͓̽p͓̽e͓̽r͓̽i͓̽e͓̽n͓̽c͓̽e͓̽s͓̽ ͓̽a͓̽r͓̽e͓̽ ͓̽r͓̽a͓̽n͓̽d͓̽o͓̽m͓̽ ͓̽a͓̽c͓̽c͓̽e͓̽s͓̽s͓̽ ͓̽m͓̽e͓̽m͓̽o͓̽r͓̽y͓̽
-
-<img src="https://raw.githubusercontent.com/Internalmonster/Internalmonster/master/Broken.gif" alt="You Lied" width="80" height="80">
 
 Run@internal.monster  
 
