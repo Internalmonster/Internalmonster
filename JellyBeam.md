@@ -1,6 +1,6 @@
 ---
 layout: page 
 title: "JellyBeam"
-permalink: /Jellybeam
+permalink: /jellybeam
 ---
 JellyBeamTest
